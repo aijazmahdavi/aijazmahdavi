@@ -26,4 +26,4 @@ Beyond my role in the software house, I am fueled by an entrepreneurial spirit. 
 
 I am always open to networking and collaborating on exciting projects. If you share a similar passion for technology, programming, or SEO, feel free to reach out. Let's create something amazing together!
 
-Connect with me on [LinkedIn]([(https://www.linkedin.com/in/aijaz-mahdavi/)https://www.linkedin.com/in/aijaz-mahdavi/]) | [Facebook]([(https://www.facebook.com/aijazmahdavi)https://www.facebook.com/aijazmahdavi])
+Connect with me on [LinkedIn](https://www.linkedin.com/in/aijaz-mahdavi/) | [Facebook](https://www.facebook.com/aijazmahdavi)
